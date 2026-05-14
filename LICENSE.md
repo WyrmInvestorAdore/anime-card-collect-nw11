@@ -1,4 +1,4 @@
-#  
+#  secret anime card collection Scripts is the best anime card collection Script, featuring auto-heal and auto-collect. Safe and powerful for all your
 
 
 
